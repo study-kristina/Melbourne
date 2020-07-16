@@ -6,7 +6,7 @@ Recently, Melbourne has ceased to live up to its reputation as a city of "low pr
 
 Collins Street has a reputation for being the most elegant street. Its eastern part is called the "Parisian End", as it houses many boutiques of the most famous brands and first-class jewelry companies. Australia are large department stores. Toorak streets of exclusive shops. Melbourne's specialty is the narrow passages between the central streets. Locals call them "arcades", their width does not exceed 3-4 meters. The streets are filled with cute cafes for all tastes and great shops. The Royal are housed in historic buildings and contain many small specialty shops and boutiques. One of the recently refurbished Hardware Line arcades is very similar to the side streets of Paris, as it houses a number of cozy restaurants and cafes with their tables on the street, right in front of the entrance to the establishment. There you can hear live music, which creates a rather festive atmosphere.
 
-![Branching](githab-original6790_1)
+![Branching](githab-upload-00pic905_1.jpg)
 
 To purchase the brightest and most unique souvenirs, you can go to the ### following shops:
 
@@ -21,7 +21,7 @@ To purchase the brightest and most unique souvenirs, you can go to the ### follo
 5. Dinosaur Designs - the designers of this brand are known to many for their jewelry and products made from solid resins, for example, from rubber.
 
 
-![Branching](githab-upload-00pic905_1)
+![Branching](githab-original6790_1.jpg)
 
 6. David Jones is on Bourke Street, one of Myer's main competitors. It is housed in two huge buildings, inside which are shops with women's and men's clothing, as well as many other shops.
 
